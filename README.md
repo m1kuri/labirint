@@ -26,5 +26,3 @@ This is the BEST game about labyrinth whith you ever seen!
 — Одынадцать" 
 — У меня всего десять?!! 
 — А ты мне тоже понравылся.
-
-© https://anekdoty.ru/pro-gruzinov/
